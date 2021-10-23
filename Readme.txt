@@ -6,4 +6,4 @@ This script is encryption if you want the full script u can buy on me contact me
 /crossreset - to reset the crosshairdesign
 
 # Preview
-https://youtu.be/iEDl4yJ4RrE
+https://youtu.be/7sTJpLv-Pac
